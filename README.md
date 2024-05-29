@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cagualord12
+- 👋 Hi, I’m Carlos!
 - 👀 I’m interested in videogames, it and sports
 - 🌱 I’m currently learning data analysis
 - 💞️ I’m looking to collaborate on it companies, specially into taking oportunities in the data analysis field
